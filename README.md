@@ -1,2 +1,2 @@
 Sri M (born Mumtaz Ali Khan) is an Indian Yogi, spiritual guide, social reformer and educationist. He is an initiate of the Nath sub tradition of Hinduism and is the disciple of Sri Maheshwarnath Babaji, who was a disciple of Mahavatar Babaji. Sri M, also known as Sri Madhukarnath Ji, lives in Madanapalle, Andhra Pradesh, India.Sri M received the Padma Bhushan, India's third-highest civilian award, in 2020.
-Thank you 
+
